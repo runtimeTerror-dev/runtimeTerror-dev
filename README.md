@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @runtimeTerror-dev
-- 🌱 I’m currently enrolled in a bachelor's in computer engineering program
+- 🌱 I recently graduated from a bachelor's in computer engineering program
 - 💞️ I’m looking to collaborate on learning focused coding projects
 - 📫 Reach me via: talhaasghar177@gmail.com, +923114701572
 
